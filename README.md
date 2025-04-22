@@ -1,3 +1,3 @@
 Nice to see you here! 
 
-You can contact me as mattia.penna@group.one
+You can contact me at mattia.penna@group.one
